@@ -1,0 +1,2 @@
+# LI_Ungureanu_Polina_IA2503
+Индивидуальная работа
